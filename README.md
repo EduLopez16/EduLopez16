@@ -1,1 +1,2 @@
 # EduLopez16
+Hola soy Eduardo, me gusta las computadoras, mas que todo el hardware, toco la guitarra en mi tiempo libre, no me gusta meterme en problemas y suelo ser un poco creativo en lo que me gusta, mi color favorito es el rojo y me gusta mucho escuchar musica mas que todo el punk rock, por su ritmo muy movido, simplemente me gusta mucho la energia que me transmite 
